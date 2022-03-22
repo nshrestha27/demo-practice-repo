@@ -1,3 +1,3 @@
 # demo
 
-I want to learn this asap.
+I want to learn this asap!! Learning is fun.
